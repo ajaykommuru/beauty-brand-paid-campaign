@@ -1,4 +1,4 @@
-# Beauty Brand Paid Campaign Strategy
+# Beauty Brand Paid Campaign Strategy 📄 **[Click Here to View Full Project PDF](https://github.com/ajaykommuru/beauty-brand-paid-campaign/blob/main/Kommuru_Venkata_Ajay_Beauty_Brand_Project.pdf)**
 
 ## Project Overview
 
